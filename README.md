@@ -1,2 +1,2 @@
 # portfolio
-UX &amp; Dev projects 2015-2017
+UX PROJECTS 2015 - 2017
